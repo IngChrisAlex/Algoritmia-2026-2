@@ -1,2 +1,2 @@
 # Algoritmia-2026-2
-Oa estudien pls 
+Curso serio aseguren el parcial
